@@ -7,6 +7,6 @@ https://forum.gamer.com.tw/C.php?bsn=18601&snA=7189
 
 osu指法 https://www.bilibili.com/read/cv3919333
 
-        https://www.acfun.cn/a/ac16761194?from=video
+        https://www.acfun.cn/a/ac16761194
 
 osu延迟 https://www.bilibili.com/read/cv4011188
