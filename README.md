@@ -1,4 +1,8 @@
 # MusicGame
+
+本文档供自己记录使用
+
+
 Tutorials
 
 https://psnine.com/topic/32631?page=3
